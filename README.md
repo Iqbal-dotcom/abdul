@@ -1,0 +1,2 @@
+# abdul
+Beda tapi setara
